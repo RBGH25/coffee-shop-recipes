@@ -9,6 +9,7 @@
 - 4 oz whole milk
 - 1/4 cup whipped cream
 - 1 Tbsp chocolate syrup + 1 tsp for garnish
+- extra chocolate
 
 ## How to Make Hazelnut Mocha
 
