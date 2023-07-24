@@ -15,7 +15,7 @@
 - 1 cup 2% milk
 - Whipped cream
 - Caramel sauce
-
+- extra 2 spoons of chocolate
 ## How to make Salted Caramel Mocha​
 
 ### Step 1
