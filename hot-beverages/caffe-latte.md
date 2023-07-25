@@ -8,6 +8,8 @@
 - 1 cup almond milk
 - Milk frother
 - Optional sweetener
+- extra chocolate
+- extra cream
 
 ## How to Make Caffè Latte
 
